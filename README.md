@@ -1,0 +1,2 @@
+# Kóðar
+Forritunar kóðar
